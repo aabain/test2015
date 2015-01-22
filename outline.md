@@ -1,6 +1,6 @@
 # Title 
 
-by Authors, Amy, Fatima and Cathy 
+by Authors, Amy, friends and foes 
 
 ## Overview
 
