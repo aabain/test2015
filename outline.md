@@ -1,6 +1,6 @@
 # Title 
 
-by Authors 
+by Authors, Amy, Fatima and Cathy 
 
 ## Overview
 
